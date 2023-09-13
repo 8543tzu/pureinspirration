@@ -1,1 +1,0 @@
-# pureinspirration is what everyone who has told themselves I can't do it or I'll do it later,or even maybe just for the depressed, lonely,or grieving for a love one you miss, we all need inspiration, this is why I want to be able to give you that pure inspiration 
